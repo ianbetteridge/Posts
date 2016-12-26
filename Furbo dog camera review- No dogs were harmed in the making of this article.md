@@ -1,0 +1,18 @@
+# Furbo dog camera review: No dogs were harmed in the making of this article
+## Details
+Rating: 4
+Price: £199
+From: Amazon [https://www.amazon.co.uk/d/Camera-Photo/Furbo-Dog-Wifi-Cam-Audio-Treat-Tossing/B01FXC7JWQ/ref=sr\_1\_1?ie=UTF8&qid=1481711992&sr=8-1&keywords=furbo](https://www.amazon.co.uk/d/Camera-Photo/Furbo-Dog-Wifi-Cam-Audio-Treat-Tossing/B01FXC7JWQ/ref=sr_1_1?ie=UTF8&qid=1481711992&sr=8-1&keywords=furbo)
+
+## Copy
+What happens when a 16 year old dog finds the half kilo bag of dog treats that you’re going to test the Furbo with and decides to eat them all, right now? It turns out that dog treats – recommended no more than five to ten a day – result in what can only be describe as poomageddon when ingested in large quantities, along with a very sheepish look on the dog.
+Meet Zoey, the guiltiest dog in the world:
+[PIC OF THE DOG TO GO HERE](#)
+Thankfully, at 16 Zoey isn’t badly behaved, and mostly just wants a nice long sleep in her basket. She doesn’t bark much, either, which is a blessing to our neighbours. But we do have to leave her at home every now and then for a few hours, and like all dog owners we worry. Is she barking a lot? Is she up to no good? Is the cat bullying her? 
+Enter Furbo, described as “the world’s first treat-tossing dog camera”. Furbo is a kind of electronic baby-sitter for your dog, letting you watch them via a smartphone app, talk to them through a small speaker, and – as the description suggests – toss them treats. 
+Setting Furbo up is incredibly easy. Download the smartphone app (iOS and Android are supported – Windows Phone user, you’re out of luck) and plug the Furbo into a USB power supply. The app detects your new Furbo via Bluetooth, and you then connect it to WiFi. At that point, it’s done. 
+You can watch your dog from anywhere in the world, with a 720p HD camera which also supports night vision. The lens has 120 degree wide-angle, and 4x digital zoom, so if you position the Furbo well there’s a decent chance you can cover most of a room. The camera is angled downwards, so it’s better positioned on a table or shelf than on the floor. The camera supports taking pictures and video as well, if you want to record your dog doing tricks or getting up to bad things.
+There’s two-way audio, too, which means you can talk to your dog (although, in our case, the dog’s slight deafness meant we mostly got ignored – which is not unusual) and hear if it’s barking. Usefully, you get alerts on your phone if Furbo thinks your dog is barking while you’re out.
+And then of course there’s the treat dispenser – or, as I think of it, the dog pacification cannon. The mechanism for throwing treats is actually quite similar to catching Pokemon in Pokemon go, as you “flick” the treat on screen to throw it to the dog. 
+All this is great, but does it add up to £199-worth of great? Furbo sounds like a gimmick for over-protective dog owners, but it’s actually both well made and practical. The design is difficult to knock over (important if you have a larger dog and place it within paw-reach), and it works well. Camera and sound quality are good. Nothing about it feels cheap, which given the price is a very good thing.
+Whether it’s worth the money depends on your dog and its behaviour. If it’s a barker and needs occasional calming down when you’re not in the house, Furbo will be worth buying. For us, with a very placid 16 year old who prefers her basket to running around, what we get out of Furbo is just reassurance and an occasional sweet picture of Zoey, it would probably be a less worthwhile purchase. For those that need it though, it’ll be a good buy.
